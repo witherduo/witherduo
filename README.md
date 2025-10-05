@@ -1,4 +1,4 @@
-## HIYAA! OIEE!!
+## HIYAA! OIE! ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
 
 <img width="640" height="52" alt="1000182672" src="https://github.com/user-attachments/assets/b05a991b-f3f3-4e90-b54c-8f4f3f919f95" />
 <img width="1200" height="68" alt="1000182673" src="https://github.com/user-attachments/assets/3dae205a-82fc-4d2c-aef7-cc8a63790204" />
