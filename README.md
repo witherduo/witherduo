@@ -3,7 +3,7 @@
 <img width="640" height="52" alt="1000182672" src="https://github.com/user-attachments/assets/b05a991b-f3f3-4e90-b54c-8f4f3f919f95" />
 <img width="1200" height="68" alt="1000182673" src="https://github.com/user-attachments/assets/3dae205a-82fc-4d2c-aef7-cc8a63790204" />
 
- ᝰ.ᐟ you can call me bitto or pulse, nice to meet ya! Im usually hanging out with my friends, but when I'm not feel free to c+h! ( *ˊᵕˋ) I LOVEVE interacting and getting to know ppl (even tho I'm a bit shy,,). I tend to type in all caps, but I try to match the way the person I'm talking to texts!! I also use tone indicators alot I fear. My english is good at best, so dont mind if i make grammar mistakes. TALK TO ME ON TWTT!!
+ ᝰ.ᐟ you can call me bitto or pulse, nice to meet ya! Im usually hanging out with my friends, but always feel free to c+h w me! ( *ˊᵕˋ) I LOVEVE interacting and getting to know ppl (even tho I'm a bit shy,,). I tend to type in all caps, but I try to match the way the person I'm talking to texts!! I also use tone indicators alot I fear. My english is good at best, so dont mind if i make grammar mistakes. TALK TO ME ON TWTT!!
   Remember to always treat others like you want to be treated, spread kindness <3!! TY FOR READING AND HAVE A GOOD DAY!! ᝰ.ᐟ
   <img width="1200" height="68" alt="1000182674" src="https://github.com/user-attachments/assets/7b871c56-1357-42b4-972b-ecc20c234da8" />
 
