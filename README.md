@@ -14,8 +14,8 @@
 ![1000181373](https://github.com/user-attachments/assets/136b0943-7ff4-4557-aa19-f9bae06a9b75)
 IMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIES
 <img width="1200" height="68" alt="1000182673" src="https://github.com/user-attachments/assets/3dae205a-82fc-4d2c-aef7-cc8a63790204" />
-<img width="1500" height="500" alt="1000183087" src="https://github.com/user-attachments/assets/0f28089c-6ca4-4079-907e-7ba76e786f01" />
-
+![1000186895](https://github.com/user-attachments/assets/51b99878-3698-44a5-8083-256f86d38eef)
+me and who... (the voices)
 <!--
 **witherduo/witherduo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
