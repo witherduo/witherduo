@@ -15,7 +15,7 @@
 IMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIES
 <img width="1200" height="68" alt="1000182673" src="https://github.com/user-attachments/assets/3dae205a-82fc-4d2c-aef7-cc8a63790204" />
 ![1000186895](https://github.com/user-attachments/assets/51b99878-3698-44a5-8083-256f86d38eef)
-me and who... (the voices) party iwec btw
+me and who... (the voices) party dni btw
 
 ![](https://komarev.com/ghpvc/?username=witherduo&color=green)
 <!--
