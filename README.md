@@ -15,8 +15,9 @@
 IMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIES
 <img width="1200" height="68" alt="1000182673" src="https://github.com/user-attachments/assets/3dae205a-82fc-4d2c-aef7-cc8a63790204" />
 
+<img width="1080" height="737" alt="1000202442" src="https://github.com/user-attachments/assets/d3cb3fec-f2af-47c6-ad42-f989c837a3ec" />
 
-my polycule/j besties !! ILOVEYALL)
+polycule/JOKE BESTIESS!! ILOVEYALL♡♡♡
 
 ![](https://komarev.com/ghpvc/?username=witherduo&color=green)
 <!--
