@@ -17,7 +17,7 @@ IMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIE
 
 <img width="1080" height="737" alt="1000202442" src="https://github.com/user-attachments/assets/d3cb3fec-f2af-47c6-ad42-f989c837a3ec" />
 
-polycule/JOKE BESTIESS!! ILOVEYALL♡♡♡
+MY SCAR AND MY JIMMY!! ILOVEYALL♡♡♡
 
 ![](https://komarev.com/ghpvc/?username=witherduo&color=green)
 <!--
