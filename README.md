@@ -15,8 +15,6 @@
 IMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIESIMPULSEPLEASEWINALIFESERIES
 <img width="1200" height="68" alt="1000182673" src="https://github.com/user-attachments/assets/3dae205a-82fc-4d2c-aef7-cc8a63790204" />
 
-<img width="736" height="733" alt="4685ddc2cf18e9fcf677fc060d3deb67" src="https://github.com/user-attachments/assets/aeab4826-90bb-47be-aa24-2910bdb90b18" />
-
 <img width="1080" height="737" alt="1000202442" src="https://github.com/user-attachments/assets/d3cb3fec-f2af-47c6-ad42-f989c837a3ec" />
 
 MY SCAR AND MY JIMMY!! ILOVEYALL AND MISS YALL SM♡♡♡ my forever bam<33333
